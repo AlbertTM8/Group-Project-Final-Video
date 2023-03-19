@@ -9,7 +9,7 @@ Growing Grass Video Link:
 https://drive.google.com/file/d/1R4RSY6Z1pMunKEEmcdZOkpSZFlim5g7T/view?usp=sharing
 
 
-Tree Lighting and Growth:
+Tree Lighting and Growth Effect:
 
 ![Picture4](https://user-images.githubusercontent.com/115167346/226188630-830d8cd0-dfa3-43d5-819e-822de9b30b0c.png)
 ![Picture1](https://user-images.githubusercontent.com/115167346/226188625-65612954-8ebd-4c6c-91ff-36a2bae99498.png)
